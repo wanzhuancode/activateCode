@@ -1,5 +1,5 @@
 # activateCode
-idea最新激活码 正版激活
+idea最新激活码 正版激活 有偿
 联系vx wanzhuancode
 
 激活码失效联系vx wanzhuancode
