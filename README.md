@@ -1,6 +1,7 @@
 # activateCode
 idea最新激活码 正版激活
 
+小程序免费自动更新
 
 联系vx wanzhuancode
 
